@@ -2,6 +2,8 @@
 
 **Are you ready to take your Coin Master game to the next level?** Right now, there's an exciting offer for all players in the United States—**5000 free spins** to help boost your gameplay! This is an exclusive opportunity to enhance your village-building adventure with tons of spins, coins, and rewards. If you want to claim your 5000 free spins for Coin Master, simply click the link provided below and start spinning today!
 
+#### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 But don’t wait too long—this limited-time offer is only available for a short while, and you'll want to get the most out of it before it disappears. So, let’s dive into everything you need to know about the game, how to use your free spins, and tips to make the most of your Coin Master experience in 2024!
 
 ## What is Coin Master?
